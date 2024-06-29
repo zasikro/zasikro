@@ -1,4 +1,1 @@
-yo
-my name is kat-hy 
-ki_ng <3
-bye
+i forgot why i made an account here tbh.. bye
